@@ -1,5 +1,5 @@
-#Hey!
+# Hey!
 
-##Paulina Klisowska, a.k.a. Barbie
+## Paulina Klisowska, a.k.a. Barbie
 
 As a Master of European Law and also Law student with a flair for independent research, I’ve navigated the complex terrain of the ID-UB project on “Processing Data of Underage Social Media Users” My journey led to the creation of a helpful guide for parents and a scientific article on parental consent for data processing, set to be published in the autumn edition of “Zeszyty prawnicze UAM.” Along the way, I’ve shared my findings with the academic community, making complex legal topics as approachable as a walk in the park — though perhaps not one with roaming dinosaurs. Outside the academic world, I’m all about striking the right chord — whether it’s in a legal argument or while curating the perfect playlist. My free time is spent in the garden (always watching for any lurking prehistoric creatures), on the sports field, or experimenting in the kitchen, with a catchy tune in the background and a flair for the dramatic (inspired, no doubt, by a certain adventurous pirate or a sun-soaked musical). I approach life much like a well-constructed legal argument — thoughtful, engaging, and always ready for a twist.
